@@ -1,4 +1,4 @@
-check my strwpg it has all the info you need except for my address and family's name! https://zuhrhaz.straw.page
+check my strwpg it has all the info you need except for my address and family's name! https://zuhrahz.straw.page
 ![a9a54f738e52f3a74035fbaf434fae6a](https://github.com/user-attachments/assets/a5158e4d-b20d-49af-a431-bc3106f544ba)
 ![ffe0b3cfb3827ba03be3ed966b79a20d](https://github.com/user-attachments/assets/e48cfcd3-daaa-4b8f-bbf3-47406559c42e)
 ![ba45735839e5793a86e68e711dda402c](https://github.com/user-attachments/assets/3f6594e4-93d5-4b5b-85da-aae6afb600ff)

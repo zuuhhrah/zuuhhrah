@@ -1,4 +1,10 @@
-https://donate.redcross.org.uk/appeal/gaza-crisis-appeal#:~:text=Red%20Cross%20and%20Red%20Crescent,our%20Gaza%20Crisis%20Appeal%20now
--
-![366150600-89633178-68c4-407d-a58d-cb8a54e15130](https://github.com/user-attachments/assets/6506c5ed-56b8-4d5d-9ba7-4956bc704831) 
-![367046120-709b4799-b327-4c6f-ad0f-45c40db5e42b](https://github.com/user-attachments/assets/b39b019d-8ed9-4014-8892-b8afc24266fd)
+check my strwpg it has all the info you need except for my adress and family's name!
+![a9a54f738e52f3a74035fbaf434fae6a](https://github.com/user-attachments/assets/a5158e4d-b20d-49af-a431-bc3106f544ba)
+![ffe0b3cfb3827ba03be3ed966b79a20d](https://github.com/user-attachments/assets/e48cfcd3-daaa-4b8f-bbf3-47406559c42e)
+![ba45735839e5793a86e68e711dda402c](https://github.com/user-attachments/assets/3f6594e4-93d5-4b5b-85da-aae6afb600ff)
+![ce992718f098f5c52eee7c61eb371d51](https://github.com/user-attachments/assets/0aa67799-3d4c-4e5e-9639-44d994955f8a)
+![59d6b20d0dc42f06d8bb43c4d089290e](https://github.com/user-attachments/assets/5e0c63ea-d1c3-48f4-8c5e-5a566d402adc)
+![ca60931c67490a8c63c4e3ba192b5ef6](https://github.com/user-attachments/assets/57a5ed3e-3f39-45a5-a3ef-c3c507bbfb2f)
+![0b197210ac4534176b3c30c4c411c468](https://github.com/user-attachments/assets/8654d8bd-8afe-4091-b4dc-4d6a37dc850b)
+![25fb23db80a85b64e38fcb4eb5dcee3c](https://github.com/user-attachments/assets/d9afd5f5-466c-4393-b887-82f0d6f2facf)
+![3785cdefeb8946d68f73c3b70106ea2c](https://github.com/user-attachments/assets/e1b73366-a914-4ac3-bbb0-e04fc57b6970)

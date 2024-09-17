@@ -6,4 +6,5 @@ https://donate.redcross.org.uk/appeal/gaza-crisis-appeal#:~:text=Red%20Cross%20a
 - fav artists? ; ado, mitski, kikuo, MARETU, YOASOBI and 9Lana!!
 - usually alone so.. feel free to c+h even if not mentioned in name!! :DDDD
 - suprisingly taken (BY A REAL PERSON IN MY LIFE NOT AN ONLINE FRIEND FYI!!!!!!!!!(4 som1 erm!)
-- hey, am i important to you?
+- funny thing i hate myself and i hate this world so much that to the point where i wanted to ki
+- i am NOT finishing that sentence up there!
